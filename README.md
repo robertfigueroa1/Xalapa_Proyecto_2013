@@ -1,11 +1,11 @@
-Xalapa_Proyecto_2013
+Proyecto Xalapa 2013
 ====================
 
 Consulta ciudadana para formular propuestas para
 
 Xalapa, Veracruz México
 
-#JuntosHaremosHistoria #Xalapa @robertfigueroa1 @acedeno
+_#JuntosHaremosHistoria #Xalapa @robertfigueroa1 @acedeno
 
 Bienvenido!!!!
 
